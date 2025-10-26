@@ -109,3 +109,13 @@ According to this, a big consequence of the USA's trade wars is half the illegal
 I guess that's fair. East-West balance. Very Jedi.  
 
 ![6d89a6ac-b275-4a53-a030-adbc846c0b98](https://github.com/user-attachments/assets/69992c9f-8801-4d04-a2d3-1c8e27f44dce)
+
+---------------------------------------------------------------------------------------------------------------------------------------------------------------  
+
+The orange guy doesn't look like he's gonna set himself on fire anytime soon. Why does he get to have all the zen? No fair!  
+
+![7552f961-8e6d-4980-aea8-48e5542ba38d](https://github.com/user-attachments/assets/a1ce80cd-b7d4-49a3-8ac6-d3084491d938)
+
+This guy also doesn't look like he's gonna set himself on fire. Very zen. You still don't know if Orange is actually pacifist though *wink wink*. 
+
+![a4a48e32-ad65-4898-9f27-1da4e0e8f85b](https://github.com/user-attachments/assets/4033d48d-45a0-43d0-b9b6-2cfad547f18a)
