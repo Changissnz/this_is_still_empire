@@ -53,3 +53,9 @@ Maybe extremist Christians can take after this guy, his faith and all.
 Through thick and thin, chaos and disorder, war and peace, law and order will always be underneath it all.  
 
 ![882307de-ec5f-4a72-bbdd-e34d1690ed19](https://github.com/user-attachments/assets/d5401999-d9b2-46cc-91b8-2e4ec7c2990a)
+
+-------------------------------------------------------------------------------------------------------------------------------------------------------------------
+
+My, have the legendary Thracians fallen. And with that much difficulty getting back up.  
+
+![6cdca96f-0825-4cec-a75c-fe739003275d](https://github.com/user-attachments/assets/921a9200-89d6-42c9-bf5c-7e02b755e0a9)
