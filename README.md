@@ -78,3 +78,9 @@ Oh... OK. This is where all the money has been getting pumped into. The caption 
 This is what happens when you can't hoard or whore out all the talent. There's still a way for American War Industry to profit from this. It's not the end of the world.  
 
 ![cb5c6661-7188-4c9b-8fa8-03bf7b233771](https://github.com/user-attachments/assets/b1b73afb-cd9f-4342-9ed4-b17c89a1dcec)
+
+------------------------------------------------------------------------------------------------------------------------------------------------------------------
+
+This is what happens when the UN Security Council agrees on equality and wealth.  
+
+![d98bddd3-a536-4602-b25b-bb3fc95ad8f5](https://github.com/user-attachments/assets/a4ad39ab-8b7a-4a4a-b681-de0c01a691cb)
