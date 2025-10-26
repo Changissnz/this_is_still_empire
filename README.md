@@ -59,3 +59,9 @@ Through thick and thin, chaos and disorder, war and peace, law and order will al
 My, have the legendary Thracians fallen. And with that much difficulty getting back up.  
 
 ![6cdca96f-0825-4cec-a75c-fe739003275d](https://github.com/user-attachments/assets/921a9200-89d6-42c9-bf5c-7e02b755e0a9)
+
+-------------------------------------------------------------------------------------------------------------------------------------------------------------------
+
+Watch out, the West! Mister China's A.I. does not mess around! No games!  
+
+![cbdf7b9c-b4b4-4b81-8f7e-5d4dca09a6af](https://github.com/user-attachments/assets/508197ea-95f5-4c59-bd82-7f4366c1df2f)
