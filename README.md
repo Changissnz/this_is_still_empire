@@ -35,3 +35,9 @@ Round 2. Final Round. And they say only Japan knows Mortal Kombat.
 He's a Muslim. And he's a pragmatist. He sees the errors of the West. He shares his wisdom with his Eastern associates.   
 
 ![aacb6829-96e9-44b4-975f-efa84f26b344](https://github.com/user-attachments/assets/0800f6f8-9ea7-487c-8373-eb1a9aefa3e4)
+
+---------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------  
+
+That's one thick mustache and one long knife. The Army man's state-of-the-art technology should protect him though.  
+
+![6dbf0436-4cae-4b2c-956a-f1acfe0fb33a](https://github.com/user-attachments/assets/ac143912-c315-4c53-a15b-7b4d06ebf86a)
