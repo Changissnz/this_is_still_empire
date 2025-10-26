@@ -72,3 +72,9 @@ Oh... OK. This is where all the money has been getting pumped into. The caption 
 ... as if anyone reads. No one does A.I.  
 
 ![ba0779fd-dfb2-4710-b7c2-a2513dffbd61](https://github.com/user-attachments/assets/f2238e81-f9af-47b2-9e8c-85fa12ab5fb2)
+
+-------------------------------------------------------------------------------------------------------------------------------------------------------------------
+
+This is what happens when you can't hoard or whore out all the talent. There's still a way for American War Industry to profit from this. It's not the end of the world.  
+
+![cb5c6661-7188-4c9b-8fa8-03bf7b233771](https://github.com/user-attachments/assets/b1b73afb-cd9f-4342-9ed4-b17c89a1dcec)
