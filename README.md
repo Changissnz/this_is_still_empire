@@ -90,3 +90,9 @@ This is what happens when the UN Security Council agrees on equality and wealth.
 Haa! Gotta love when planned economies and loose morals consummate. If the job was planned out for the guy to take, then why not also his future wife?  
 
 ![d9b947ad-31e4-4630-b615-b2f44d81cdff](https://github.com/user-attachments/assets/e6eddee0-1c73-48f0-bbcf-35de19c53a5a)
+
+------------------------------------------------------------------------------------------------------------------------------------------------------------------ 
+
+The guy that she's talking about has typical defense. School and money problems. Besides, she had plenty of suitors. Now she gets monthly payments from all of them.  
+
+![513f6bcb-28d3-4a23-a002-1ba0270f59f3](https://github.com/user-attachments/assets/efed7337-aad3-4030-8296-c6a876fc23af)
