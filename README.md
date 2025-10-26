@@ -102,3 +102,10 @@ The guy that she's talking about has typical defense. School and money problems.
 America needs to get its bullcrap straight with the history and the Asian American & Pacific Islander (AAPI) commemoration.  
 
 ![57772915-a9e0-49ac-9bb5-526c69e12581](https://github.com/user-attachments/assets/4ce46d11-f67a-4f95-8088-23147a2ea690)
+
+----------------------------------------------------------------------------------------------------------------------------------------------------------------
+
+According to this, a big consequence of the USA's trade wars is half the illegal immigrants go to the USA, the other half go to China now. 
+I guess that's fair. East-West balance. Very Jedi.  
+
+![6d89a6ac-b275-4a53-a030-adbc846c0b98](https://github.com/user-attachments/assets/69992c9f-8801-4d04-a2d3-1c8e27f44dce)
