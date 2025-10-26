@@ -30,4 +30,8 @@ Round 2. Final Round. And they say only Japan knows Mortal Kombat.
 ![358a7b03-e341-42db-9922-549500fcb87c](https://github.com/user-attachments/assets/f9f89d64-ea1a-49e8-a2d5-7a457db4cb29)
 
 
+---------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------  
 
+He's a Muslim. And he's a pragmatist. He sees the errors of the West. He shares his wisdom with his Eastern associates.   
+
+![aacb6829-96e9-44b4-975f-efa84f26b344](https://github.com/user-attachments/assets/0800f6f8-9ea7-487c-8373-eb1a9aefa3e4)
