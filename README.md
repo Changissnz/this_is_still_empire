@@ -84,3 +84,9 @@ This is what happens when you can't hoard or whore out all the talent. There's s
 This is what happens when the UN Security Council agrees on equality and wealth.  
 
 ![d98bddd3-a536-4602-b25b-bb3fc95ad8f5](https://github.com/user-attachments/assets/a4ad39ab-8b7a-4a4a-b681-de0c01a691cb)
+
+------------------------------------------------------------------------------------------------------------------------------------------------------------------
+
+Haa! Gotta love when planned economies and loose morals consummate. If the job was planned out for the guy to take, then why not also his future wife?  
+
+![d9b947ad-31e4-4630-b615-b2f44d81cdff](https://github.com/user-attachments/assets/e6eddee0-1c73-48f0-bbcf-35de19c53a5a)
