@@ -119,3 +119,9 @@ The orange guy doesn't look like he's gonna set himself on fire anytime soon. Wh
 This guy also doesn't look like he's gonna set himself on fire. Very zen. You still don't know if Orange is actually pacifist though *wink wink*. 
 
 ![a4a48e32-ad65-4898-9f27-1da4e0e8f85b](https://github.com/user-attachments/assets/4033d48d-45a0-43d0-b9b6-2cfad547f18a)
+
+---------------------------------------------------------------------------------------------------------------------------------------------------------------- 
+
+Yikes, what an animal! Is this black-on-black violence? Why isn't this hitting the front page news? It wouldn't sell past the editors.  
+
+![3e6a11d4-af42-4e56-aa2c-602335fb7d92](https://github.com/user-attachments/assets/475d72cc-9f04-4e4e-897d-f6f311fdeb7f)
