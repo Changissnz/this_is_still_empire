@@ -96,3 +96,9 @@ Haa! Gotta love when planned economies and loose morals consummate. If the job w
 The guy that she's talking about has typical defense. School and money problems. Besides, she had plenty of suitors. Now she gets monthly payments from all of them.  
 
 ![513f6bcb-28d3-4a23-a002-1ba0270f59f3](https://github.com/user-attachments/assets/efed7337-aad3-4030-8296-c6a876fc23af)
+
+---------------------------------------------------------------------------------------------------------------------------------------------------------------- 
+
+America needs to get its bullcrap straight with the history and the Asian American & Pacific Islander (AAPI) commemoration.  
+
+![57772915-a9e0-49ac-9bb5-526c69e12581](https://github.com/user-attachments/assets/4ce46d11-f67a-4f95-8088-23147a2ea690)
