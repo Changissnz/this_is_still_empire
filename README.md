@@ -47,3 +47,9 @@ That's one thick mustache and one long knife. The Army man's state-of-the-art te
 Maybe extremist Christians can take after this guy, his faith and all.  
 
 ![42705381-1453-474b-96cc-4e43ace8e3ad (1)](https://github.com/user-attachments/assets/2b8291d0-b091-41e6-9683-7444d3fd54ee)
+
+-------------------------------------------------------------------------------------------------------------------------------------------------------------------
+
+Through thick and thin, chaos and disorder, war and peace, law and order will always be underneath it all.  
+
+![882307de-ec5f-4a72-bbdd-e34d1690ed19](https://github.com/user-attachments/assets/d5401999-d9b2-46cc-91b8-2e4ec7c2990a)
