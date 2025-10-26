@@ -65,3 +65,10 @@ My, have the legendary Thracians fallen. And with that much difficulty getting b
 Watch out, the West! Mister China's A.I. does not mess around! No games!  
 
 ![cbdf7b9c-b4b4-4b81-8f7e-5d4dca09a6af](https://github.com/user-attachments/assets/508197ea-95f5-4c59-bd82-7f4366c1df2f)
+
+------------------------------------------------------------------------------------------------------------------------------------------------------------------
+
+Oh... OK. This is where all the money has been getting pumped into. The caption reads, "so this is A.I. research. We're gonna need a bigger boat."
+... as if anyone reads. No one does A.I.  
+
+![ba0779fd-dfb2-4710-b7c2-a2513dffbd61](https://github.com/user-attachments/assets/f2238e81-f9af-47b2-9e8c-85fa12ab5fb2)
