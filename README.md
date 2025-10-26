@@ -21,3 +21,13 @@ Father is telling daughter, "it's OK that you got knocked up, honey. You're stil
 
 ---------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
+The evangelical says, "These tiresome themes with Muslims get old. Time to export Helen of Troy over to Mexico and China." 
+
+![11be6661-8ee2-40c2-b8bd-ee9dfb108e61](https://github.com/user-attachments/assets/ad69cf97-feaa-47b1-9931-7dc7d153a9db)   
+
+Round 2. Final Round. And they say only Japan knows Mortal Kombat.  
+
+![358a7b03-e341-42db-9922-549500fcb87c](https://github.com/user-attachments/assets/f9f89d64-ea1a-49e8-a2d5-7a457db4cb29)
+
+
+
